@@ -1,2 +1,1 @@
-![seymour](https://cdn.discordapp.com/attachments/1134513701479776297/1135715888050470912/dwdwadwadaw_1.jpg)
-<a id="Dungeon 24/7 Discord">https://discord.gg/qzP5BzgUhr</>
+[motd.md](https://github.com/Pikolai69/Dungeon247/files/12224036/motd.md)
