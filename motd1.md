@@ -1,1 +1,0 @@
-![Seymour](https://cdn.discordapp.com/attachments/1134513701479776297/1135715888050470912/dwdwadwadaw_1.jpg)
