@@ -1,3 +1,3 @@
-![WELCOME](https://cdn.discordapp.com/attachments/1134513701479776297/1192200510925721710/DungeonUnlimited.jpg)
-![THANKS](https://media.discordapp.net/attachments/1134513701479776297/1184607437563629739/thanksforplaying.jpg)
-![HOGRIDER](https://cdn.discordapp.com/attachments/1134513701479776297/113610402999989248/Havefun.jpg)
+![WELCOME](https://media.discordapp.net/attachments/1134513701479776297/1192200510925721710/DungeonUnlimited.jpg?ex=65a8363f&is=6595c13f&hm=265f029eca34b4bfb1a4a002e3cb2de0e3a243f931fe8d42e019918c2a9afb07&=&format=webp&width=1560&height=1365)
+![THANKS](https://media.discordapp.net/attachments/1134513701479776297/1184607437563629739/thanksforplaying.jpg?ex=659f0ba6&is=658c96a6&hm=4dab679145b7fc8f0d35d791830f0277063e47b1557aa24efd8170e32843854e&=&format=webp&width=1560&height=1365)
+![HOGRIDER](https://media.discordapp.net/attachments/1134513701479776297/1136104024999989248/Havefun.jpg?ex=65a72953&is=6594b453&hm=6b66888251e401a52ba7be5706c40736fa52fba22957c8d183594eea0adf6ee3&=&format=webp&width=1560&height=1365)
